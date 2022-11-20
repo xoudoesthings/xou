@@ -1,2 +1,2 @@
 # xou
-About me and website in the fuuture.
+About me and website in the future.
